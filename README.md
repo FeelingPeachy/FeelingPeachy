@@ -2,4 +2,4 @@
 
 🌱 I’m currently learning Computer Science at the University of Exeter
 
-🤝 Open to collaboration!
+🤝 Let's connect!
